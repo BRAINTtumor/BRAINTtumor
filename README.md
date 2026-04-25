@@ -6,6 +6,8 @@
 𓈒 [Տ𝗍rᥲᥕ⍴ᥲgᥱ](https://holical.straw.page/) 𓈒 [⍴rᥒs.⍴ᥲgᥱ](https://en.pronouns.page/@Tumorr) 𓈒 [ᥲ𝗍ᥲ.ᑲ᥆᥆k](https://holical.atabook.org) 𓈒
 ####      
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&redirect=true)
+####
+[➴](https://www.youtube.com/watch?v=zTFD7fQORrI)
 
 ####
 <img width="2000" height="124" alt="Image" src="https://github.com/user-attachments/assets/5ed4ec61-3778-42b8-be64-267bc91dc572" />
